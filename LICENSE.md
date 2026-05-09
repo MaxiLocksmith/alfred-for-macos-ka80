@@ -1,4 +1,4 @@
-
+Get the ultimate Alfred for macOS script with best Alfred for macOS Script | menu-bar-customization + performance-boost. Featuring menu-bar-customization and performance-boost,
 
 
 
